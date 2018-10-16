@@ -1,1 +1,1 @@
-# ZiyadGuluzade.github.io
+# Psychic-Game
